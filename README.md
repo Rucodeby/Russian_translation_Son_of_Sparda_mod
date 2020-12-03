@@ -1,1 +1,1 @@
-# Russian_translation_Son_of_Sprada_mod
+# Russian_translation_Son_of_Sparda_mod
